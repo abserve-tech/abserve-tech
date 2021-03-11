@@ -18,7 +18,7 @@ Here are some ideas to get you started:
 
 ### About us
 
-We Abservetech are the top website, mobile app development, and clone scripts development company in India. We have built a series of ready-made products to help entrepreneurs and startup companies to get started with their ideal business ideal.
+We Abservetech are the top website, mobile app development, and clone scripts development company in India. We have built a series of ready-made products to help entrepreneurs and startup companies to get started with their ideal business instantly!.
 
 To Know more about us: [Abservetech](https://www.abservetech.com/)
 
